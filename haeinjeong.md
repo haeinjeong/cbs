@@ -2,5 +2,5 @@
 
 - Heat bun
 - Microwave hot dog
-- Add ketchup
+- Add barbecue sauce
 - Enjoy
